@@ -57,8 +57,7 @@ Aspiring **Web3 Community Lead** passionate about decentralized technology, onbo
 
 - ✉️ Email: umarubalesale@gmail.com  
 - 🐦 Twitter: [@thisspharooq](https://twitter.com/thisspharooq)  
-- 🔗 Linktree: (add your Linktree URL here)  
-- 📅 Book a call: (add your Calendly link here)
+- 🔗 Linktree: (https://linktr.ee/thisspharooq)
 
 ---
 
